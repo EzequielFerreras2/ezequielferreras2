@@ -11,13 +11,13 @@
 
 - 👯 I’m looking to collaborate on **All project**
 
-- 🤝 I’m looking for help with **All project as posible**
+- 🤝 I’m looking for help with **All project as possible**
 
 - 💬 Ask me about **React, tailwind,figma**
 
 - 📫 How to reach me **ezequielferreras2@gmail.com**
 
-- 📄 Know about my experiences [Im work on my own profile and proyec. soon as posible ill up updates](Im work on my own profile and proyec. soon as posible ill up updates)
+- 📄 Know about my experiences [I'm working on my own profile and project. Soon as possible ill up updates](I'm working on my own profile and project. Soon as possible ill up updates)
 
 - ⚡ Fun fact **I think that I'm so curious and love to learn new skill**
 
